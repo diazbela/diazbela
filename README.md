@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @diazbela
 - 👀 I’m interested in media & blog
-- 🌱 I’m currently learning social media marketing
+- 🌱 I’m currently learning social media engagement
 - 💞️ I’m looking to collaborate on any project!
 - 📫 How to reach me yustisia.diazbela@gmail.com
 
